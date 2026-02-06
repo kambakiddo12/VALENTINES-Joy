@@ -1,7 +1,22 @@
-# 💝 Valentines Joy
+# 💝 Valentines Joy and Jasho
 
 Click the surprise below:
 
-[surprise](https://kambakiddo12.github.io/VALENTINES-Joy/)
+### 🎁 [surprise](https://kambakiddo12.github.io/VALENTINES-Joy/)
 
-Made with ❤️
+<div align="center">
+
+<pre>
+      💖💖     💖💖
+    💖💖💖💖 💖💖💖💖
+   💖💖💖💖💖💖💖💖💖
+   💖💖💖💖💖💖💖💖💖
+    💖💖💖💖💖💖💖💖
+      💖💖💖💖💖💖
+        💖💖💖💖
+          💖💖
+           💖
+             
+</pre>
+
+</div>
